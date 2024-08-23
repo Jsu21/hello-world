@@ -1,2 +1,3 @@
 # hello-world
-Iam from no, la
+Im from New Orleans and im a cool person 
+My is Therrin Shezbie Jr
